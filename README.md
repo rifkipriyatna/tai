@@ -1,2 +1,0 @@
-# tai
-Tai kau
